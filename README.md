@@ -1,1 +1,5 @@
 # EX12
+kenfoiejhfojnwkjnfewokjnfiwehnefioknw
+efoijeoipfjwfie
+lkefnmwokfjpewokf
+kewfmopklfwm
